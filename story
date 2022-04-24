@@ -1,0 +1,1 @@
+Pig 1 build house of straw, wolf blew it down. Pig 2 build house of stick and wolf blew it down. Pig 3 built house out of brick, and wolf could not blow it. Wolf tried to come in but couldn't. Wolf came down chimney and got burned.
